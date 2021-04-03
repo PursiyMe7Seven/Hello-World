@@ -1,2 +1,2 @@
 # Hello-World
-Some boring description here.
+I'll keep there my thoughts... You can talk with me in discussions.
